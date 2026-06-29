@@ -1,4 +1,4 @@
-
+ultimate Script for shrink for brainrots is the best shrink for brainrots Script, featuring private server access and one-hit kill. Safe and powerful
 
 
 
